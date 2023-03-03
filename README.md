@@ -1,2 +1,2 @@
-# fuzzy-system
-Our world 🌎 
+# Page 1
+
